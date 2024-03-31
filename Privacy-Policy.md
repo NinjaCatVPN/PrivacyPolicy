@@ -1,4 +1,4 @@
-Privacy Policy and Terms of Use
+Privacy Policy
 ----------------
 
 ### Introduction  
